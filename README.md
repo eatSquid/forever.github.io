@@ -1,2 +1,7 @@
 # forever.github.io
-博客
+博客让他让他不不不突然rh如火如荼和fgfghf
+
+
+thrhrfgfghffgh发过火凤凰让他忽然后台
+人头和认同和然后图如何rtrthrhthtrrtrh
+人头黑桃皇后脱氧核糖好讨厌fgdf
